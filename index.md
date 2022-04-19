@@ -40,7 +40,7 @@ The Inheritance是对E. M. Foster作品霍华德庄园的一次致敬和延伸�
 一次Henry去欧洲处理生意时，Walter偷偷回了纽约，偶遇了患HIV即将死去却流落街头的旧友Peter。他把Peter接到房子里，送了他最后一程。然而当Henry知道这件事以后，他既愤怒又恶心，甚至连这栋房子都不敢接近，命令Walter不要把瘟疫带到属于他们二人的乌托邦。但是Walter不为所动，他坚持这栋房子是一种救赎，一种责任，他继续把一个又一个将死之人拉到房子里，把他们火化后的骨灰埋到了院子里。Henry从未能理解爱人的行为，他不明白为什么爱人要把瘟疫带到他们两人的世界里，从那以后，他再没对Walter说过我爱你，也再也没有和Walter做过爱，因为他一碰到Walter就想到了疾病。在Walter接收临终病人的最初几个月里，Henry直接跑到了法国避难，他仍然爱着Walter，但也厌恶瘟疫，于是他把这栋沾染上了瘟疫的房子产权给了Walter。<br>
 
 ![avatar](https://www.youngvic.org/sites/default/files/3_0_2.jpg)
-Henry来告知Eric关于Walter的死讯，Walter的鬼混在背后看着他们
+Henry来告知Eric关于Walter的死讯，Walter的鬼魂在背后看着他们
 
 
 <br>Eric被Walter的故事震撼，Walter在交谈中也意识到了Eric和自己一样对gay community有着归属感和责任。这次感恩节的晚餐竟成了两人最后的深入交谈机会。感恩节过后，Walter癌症发作迅速离世。临死前，他写下遗嘱要把那栋城郊的房子让给Eric. 这份遗嘱被Henry和他的两个儿子发现，父子三人都怀疑是即将失去公寓的Eric色诱了Walter，趁Walter神志不清时夺取了房产，于是他们隐藏了这份遗嘱。这份象征了同志社区互助的房子就此失传。Henry只是简单告知了Eric说Walter癌症去世了。

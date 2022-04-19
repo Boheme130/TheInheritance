@@ -36,7 +36,7 @@ The Inheritance是对E. M. Foster作品霍华德庄园的一次致敬和延伸�
 舞台剧上演后一炮而红，但是所有评论却对这个剧本的创作人Toby不屑一顾，所有对Loved Boy的赞美都是围绕Adam，甚至许多评论直接点出Toby唯一的价值就是为表演天才Adam提供了表演的契机。Toby嫉妒愤怒到发疯，而另一边他还得知了Eric公寓的真相，两人大吵一架，Eric在愤怒中戳破了Toby多年来的幻想，同时此时两人得知Toby已经无可救药地爱上了Adam。盛怒之下两人分手。Toby跑到Adam的公寓表白，但是Adam直接把他扫地出门，这次经历给Toby造成了永久的创伤。同时Adam成名后和Eric也断了联系。现在，三人各自分开。<br>
 
 ![](https://i.ibb.co/Hg83Qhp/IMG-1233.jpg)
-从左到右分别是Henry, Walter, Toby, Eric
+两代情侣，从左到右分别为Henry, Walter, Toby, Eric
 
 
 这栋公寓里还有其他的住户，Henry和Walter是Eric旁边的住户。Henry是年收入破25亿的房地产大亨，而Walter是陪伴了他36年的爱人。在Eric和Toby还没有分手的时候，感恩节时Toby去芝加哥处理舞台剧，Eric一个人留在纽约。碰巧的是Henry也一人去了法国处理生意，就这样，Walter和Eric两个人度过了感恩节。Eric询问Walter和Henry的情感，知道了36年前两人一见钟情。如果爱情是一场舞会，那么”Walter并不是Henry一开始就共舞的对象，而是在音乐声戛然而止时握住Henry手的那个人”。两人当时坠入爱河后，八十年代HIV浪潮开始了，他们的朋友一个接一个死去，时代的浪潮让身份悬殊的二人紧紧抱在一起对抗世界。身为保守派的Henry本身就和gay community缺乏共鸣，不愿参与当时的群体自救运动，而是只关心他和爱人的命运，于是他买下了城郊的一栋房子，带着Walter去那里逃难闭门，一住就是一年。

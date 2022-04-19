@@ -1,6 +1,7 @@
 ## The Inheritance
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 ![avatar](https://www.youngvic.org/sites/default/files/4_0_2.jpg)
+从左到右分别是Eric, Leo/Adam, Toby
 <br/>
 <br/>
 

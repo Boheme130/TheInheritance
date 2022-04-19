@@ -62,7 +62,7 @@ Toby在莎士比亚里受到启发，于是他把凯撒临死前的那句拉丁�
 Toby不堪重负买了火车票回到了自己的阿拉巴马老家，独自在旅馆里花了四个月创作出了Loved Boy的续集Lost Boy，一部讲述他真实经历的故事。Lost Boy里的故事虽然真实，但却因为太过悲惨被所有经纪人拒稿。另一边，Leo流落街头再次沦为男妓，同时发现自己染上了HIV，一次他支气管炎发作却连食物都没有，在生命垂危之际，他用尽最后的力气跑到Loved Boy的剧院拦住了Adam，请求Adam帮他联系Eric. Adam把Leo送到了Eric家里。<br>
 
 ![](https://ca-times.brightspotcdn.com/dims4/default/4cc82d4/2147483647/strip/true/crop/3600x2378+0+0/resize/840x555!/quality/90/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2F9b%2F24%2F1eb367774cfdb725fa52e63e4e5b%2Fla-et-cm-the-inheritance-01a.jpg)
-Adam和Leo的扮演者为同一人
+<br>Adam和Leo的扮演者为同一人
 
 <br>Eric在请医生救助完Leo后，他打算把Leo接送到Walter留下的那栋房子里。Henry得知消息后勃然大怒，他以离婚威胁，但Eric不为所动说两人可能缘分也就此为止了。来到城郊房子里，Eric遇到了现任租户Margaret，原来Margaret是Walter曾经送别过的一个病人的母亲。Margaret和Eric一起照顾Leo, Leo的身体慢慢开始恢复。与此同时，Toby被拒稿后疯了，他把自己的Lost Boy邮件发给了所有认识的人，事业生涯毁于一旦，Eric接到邮件立刻请求Toby来城郊房子里。Toby到访，Eric把他之前遗留的家人物品交给他，望着自己曾经的照片，Toby意识到自己已经无法被拯救。于是他当晚一个人离开自杀了。
 

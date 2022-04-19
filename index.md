@@ -41,6 +41,7 @@ The Inheritance是对E. M. Foster作品霍华德庄园的一次致敬和延伸�
 
 <br>
 ![avatar](https://www.youngvic.org/sites/default/files/3_0_2.jpg)
+
 Eric和Walter最后的晚餐，Henry在背后
 <br>
 
